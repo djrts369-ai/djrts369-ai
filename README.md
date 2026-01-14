@@ -1,5 +1,5 @@
-# 💫 About Me:
-I'm DHANANJAY a medical student.<br>I like to make different apps and websuffering 
+# 💫Dhananjay Arekar
+I'm a medical student.<br>I like to make different apps and websuffering 
 
 
 ## 🌐 Socials:
